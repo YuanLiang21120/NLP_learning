@@ -1,1 +1,1 @@
-# Fucking entitled CS assholes. Fine
+# Entitled CS assholes. Fine🖕
